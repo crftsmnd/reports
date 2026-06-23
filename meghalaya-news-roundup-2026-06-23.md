@@ -1,7 +1,7 @@
 # Meghalaya News Roundup — June 23, 2026
 
 Curated from 114 article(s) across local Meghalaya news outlets.
-Generated: 2026-06-23 12:15 IST
+Generated: 2026-06-23 12:28 IST
 
 ---
 
@@ -112,13 +112,13 @@ Generated: 2026-06-23 12:15 IST
 - **[New Meghalaya House in Vellore on cards after PWD flags poor condition of existing building, says Sohtun](https://shillongtoday.com/new-meghalaya-house-in-vellore-on-cards-after-pwd-flags-poor-condition-of-existing-building-says-sohtun/)** — shillongtoday.com
 - **[39th National Game](https://shillongtoday.com/39th-national-game/)** — shillongtoday.com
 - **[Meghalaya can become model for justice delivery: IGP CID](https://eastmojo.com/meghalaya/2026/06/19/meghalaya-can-become-model-for-justice-delivery-igp-cid/)** — eastmojo.com
+- **[Meghalaya: Two held with suspected heroin in ANTF drug bust](https://eastmojo.com/news/2026/06/23/meghalaya-two-held-with-suspected-heroin-in-antf-drug-bust/)** — eastmojo.com
 - **[Meghalaya coal miners urged to await expert report before rejecting proposal](https://eastmojo.com/meghalaya/2026/06/19/meghalaya-coal-miners-urged-to-await-expert-report-before-rejecting-proposal/)** — eastmojo.com
 - **[Meghalaya govt to form panel on small-scale coal mining policy](https://eastmojo.com/meghalaya/2026/06/17/meghalaya-govt-to-form-panel-on-small-scale-coal-mining-policy/)** — eastmojo.com
 - **[From one Takin in 1999 to eight in 2026: Sikkim’s remarkable wildlife discovery](https://eastmojo.com/premium/2026/06/19/from-one-takin-in-1999-to-eight-in-2026-sikkims-remarkable-wildlife-discovery/)** — eastmojo.com
 - **[Sinking Sikkim: The Himalaya we’re engineering into collapse](https://eastmojo.com/sikkim/2026/06/16/sinking-sikkim-the-himalaya-were-engineering-into-collapse/)** — eastmojo.com
+- **[Arunachal: Two NSCN-R, one NSCN-IM cadre lay down arms](https://eastmojo.com/arunachal-pradesh/2026/06/23/arunachal-two-nscn-r-one-nscn-im-cadre-lay-down-arms/)** — eastmojo.com
 - **[Assam: Patients oppose end of private dialysis cover](https://eastmojo.com/assam/2026/06/22/assam-patients-oppose-end-of-private-dialysis-cover/)** — eastmojo.com
-- **[Sikkim: 22,000 electors identified for likely deletion](https://eastmojo.com/sikkim/2026/06/22/sikkim-22000-electors-identified-for-likely-deletion/)** — eastmojo.com
-- **[Arunachal Pradesh](https://eastmojo.com/arunachal-pradesh-news/)** — eastmojo.com
 - **[meghalayatimesshg@gmail.com](mailto://meghalayatimesshg@gmail.com)** — meghalayatimesshg@gmail.com
 - **[2027 National Games host deal signed30 May, 26](https://meghalayatimes.in/2027-national-games-host-deal-signed/)** — meghalayatimes.in
 - **[Games pact on May 3019 May, 26](https://meghalayatimes.in/games-pact-on-may-30/)** — meghalayatimes.in
