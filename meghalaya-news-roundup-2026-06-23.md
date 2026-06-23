@@ -1,7 +1,7 @@
 # Meghalaya News Roundup — June 23, 2026
 
 Curated from 114 article(s) across local Meghalaya news outlets.
-Generated: 2026-06-23 11:40 IST
+Generated: 2026-06-23 12:15 IST
 
 ---
 
